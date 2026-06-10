@@ -1,4 +1,4 @@
-# 
+# Léger reversal trading bot extensions pour Mac OS | Intelligent reversal trading bot extensions pour PC Windows. Avec détection de rupture et gestion des clés privées — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
